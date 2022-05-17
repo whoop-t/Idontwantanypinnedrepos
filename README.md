@@ -1,1 +1,2 @@
-# Idontwantanypinnedrepos
+- [linkedin](https://www.linkedin.com/in/tommy-mallis/)
+- [personal](https://www.tommymallis.com/)
